@@ -1,0 +1,1 @@
+# SMPfantastic0-afk-bot-for-aternos
